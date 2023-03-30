@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-这里是WU YONGQI
+这里是lightbearer
 
 
 俄罗斯西南国立大学(SWSU)在读的研究生
